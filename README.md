@@ -1,0 +1,1 @@
+Dynamic, Motivated and detail-oriented data analyst with a well-rounded skill set in data collection, cleaning, visualizing, reporting and storytelling. Proficient in Excel, SQL, Power Bi, Tableau and R Programming.
